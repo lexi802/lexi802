@@ -2,7 +2,7 @@
 - 👀 I’m interested in science &world religion...
 - 🌱 I’m currently learning life
 - 💞️ I’m looking to collaborate on any
-- 📫 How to reach me ...
+- 📫 How to reach me gothicimage@gmail.com
 - 😄 Pronouns: any
 - ⚡ Fun fact: I have 40+ pet rats
 
